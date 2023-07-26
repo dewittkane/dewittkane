@@ -1,1 +1,1 @@
-### A curious problem solver :thinking: that believes some of the best ideas start from thinking :thought_balloon: inside the box.
+### People Advocate | Problem Solver | Software Engineer
